@@ -1,1 +1,1 @@
-# rishivthaker.github.io
+# rishivtphotography.github.io
